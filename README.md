@@ -1,0 +1,1 @@
+https://stefanhendriks.wordpress.com/2012/09/20/a-randori-with-corey-haines/
